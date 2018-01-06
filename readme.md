@@ -7,3 +7,4 @@
 * [r/unstirredpaint/](https://www.reddit.com/r/unstirredpaint/top)
 * [r/Bossfight/](https://www.reddit.com/r/Bossfight/top)
 * [r/oldpeoplefacebook/](https://www.reddit.com/r/oldpeoplefacebook/top)
+* [r/WeWantPlates/](https://www.reddit.com/r/WeWantPlates/top)
